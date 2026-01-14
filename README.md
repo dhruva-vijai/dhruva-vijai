@@ -33,9 +33,13 @@ __https://github.com/dhruva-vijai/self_assembly__ : still in its final stages
 
 1) Astrophotography
 
+![20250606_212245 Copy](https://github.com/user-attachments/assets/2592ed5f-e430-4877-b4fb-9c187e484bab)
+
 2) Reading
 
-3) Cooking and Coffee
+
+3) Art
+
 
 4) Music
 
